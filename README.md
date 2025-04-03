@@ -1,0 +1,2 @@
+# mine
+wisdom to life
